@@ -4,3 +4,7 @@ Meu nome é Mirian Neves, professora de Tecnologia na Escola José Batista Campo
 Estou estudando na Alura.🤓📘
 Meu melhor momento é compartilhar conhecimento com os meus alunos. 😁👍
 
+### Você pode entrar comigo
+mirianneves@prof.educacao.sp.gov.br
+https://www.linkedin.com/in/mirian-neves-5425101/
+
